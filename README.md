@@ -1,1 +1,1 @@
-# Faduzz.github.io
+# discordtranslate.github.io
